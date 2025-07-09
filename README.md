@@ -10,4 +10,4 @@
 
 本平台专注于欧美日韩精品资源，提供最新高清视频在线观看，分类详细，支持多设备播放，保证观看体验流畅，满足各类用户的观影需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/but20250709/but16 ）</span>
